@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AMMINENICHARANTEJA.
+- 👋 Hi, I’m @AMMINENI CHARAN TEJA.
 - 🌱 I’m currently learning on python programming.
 - 📫 you reach me at @charantejassr3@yahoo.com
 
